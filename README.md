@@ -1,5 +1,5 @@
 ## Hi there 👋
-夜趣分享大师  优质内容分享师 bumilu7.cyou
+夜趣分享大师  优质内容分享师 bumilu77.cyou
 <!--
 **bumilu77cyou/bumilu77cyou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 bumilu7.cyou
